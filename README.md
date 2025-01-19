@@ -1,4 +1,8 @@
-  ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=silethilln&color=ff0564)
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=dolef-ul&color=99c0aa)
 
 
-![lucy-lucy-maud-montgomery](https://github.com/user-attachments/assets/42536fff-b4e3-4fd7-912f-4b8dbcf745f6)
+![alien-stage-alnst](https://github.com/user-attachments/assets/c7ca70b1-c149-49f0-b334-1fbc2920c75a)
+
+  
+  
+
