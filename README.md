@@ -1,8 +1,4 @@
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=dolef-ul&color=99c0aa)
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=dolef-ul&color=db9b8b)
 
-
-![alien-stage-alnst](https://github.com/user-attachments/assets/c7ca70b1-c149-49f0-b334-1fbc2920c75a)
-
-  
-  
+![columbina-analog](https://github.com/user-attachments/assets/25728d28-85f7-4de2-a9bd-9d7ee25cd60c)
 
