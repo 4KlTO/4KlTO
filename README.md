@@ -1,4 +1,5 @@
-![Không Có Tiêu Đề185_20250202143918](https://github.com/user-attachments/assets/eacf3c01-c933-4d96-a4ca-21123cbe9395)
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=dolef-ul&color=66627b) 
-!! DO NOT INSPO OR COPY! ill block u heh.
+![Không Có Tiêu Đề189_20250205053217](https://github.com/user-attachments/assets/478d98af-bd4e-48ea-891d-f5929f24f9b0)
+
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=dolef-ul&color=9d293f) 
+**!! DO NOT INSPO OR COPY! ill block u heh.**
 
