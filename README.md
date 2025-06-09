@@ -3,6 +3,6 @@
 
 <sub>anaxagoras x me cuz why not? (i gatekeep him ^_^)</sub>
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=AN4XAG0RAS&color=6DD2AE) 
+![](https://komarev.com/ghpvc/?username=AN4XAG0RAS&label=𐙚&color=6DD2AE)
 **!! DO NOT INSPO OR COPY! ill block u heh.**
 
