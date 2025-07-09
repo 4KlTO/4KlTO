@@ -1,8 +1,8 @@
-![1000005537](https://github.com/user-attachments/assets/df3a9f33-e8b6-4ec2-9e46-d6ec48bf7e84)
+## welcome and goodbye
+
+ㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=4KlT0&label=✷&color=ec9e6d)
 
 
-<sub>anaxagoras ♡(gatekeep)</sub>
+hi hai hello my name is akito shinonome . ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤdo not inspo!
 
-![](https://komarev.com/ghpvc/?username=AN4XAG0RAS&label=𐙚&color=6DD2AE)
-**!! DO NOT INSPO OR COPY! C+H ENCOURAGE**
-
+![1000007294](https://github.com/user-attachments/assets/c58e3d55-de19-4d08-a92b-045a369cb6ac)
