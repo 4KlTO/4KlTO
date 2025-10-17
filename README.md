@@ -1,6 +1,6 @@
 ## welcome and goodbye
 
-ㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=4KlT0&label=✷&color=ec9e6d)
+ㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=4KlT0&label=:3&color=ec9e6d)
 
 
 hi hai hello my name is akito shinonome . ㅤㅤㅤㅤㅤㅤdo not inspo!
