@@ -1,4 +1,3 @@
-## “Trapnest”
-> “The Trapped Den” Once we enter it, we can't get out by our own means; a motherly nest that comes with a trap.
+## “K-On!”
 
-<img width="736" height="368" alt="1000023738" src="https://github.com/user-attachments/assets/2c7d21a0-3ca4-4146-8306-2b08eebf62ef" />
+<img width="500" height="230" alt="1000024126" src="https://github.com/user-attachments/assets/609b43f9-ef69-4f40-bb33-d5a889a0ed17" />
